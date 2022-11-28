@@ -6,6 +6,6 @@ Age 23.
 
 # my love
 
-![img]([http://47.106.183.112/Img/221028-01/yoimiya01.jpg])
+![img](http://47.106.183.112/Img/221028-01/yoimiya01.jpg)
 
 
