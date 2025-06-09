@@ -1,1 +1,1 @@
-[HimeBlog](https://blog.himesamanoyume.top/) | [bilibili](https://space.bilibili.com/2256304/dynamic)
+月雪宫子的约定之王
